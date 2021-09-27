@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Flow 条 or FlowMat
+- 👀 I’m interested in Anime
+- 💞️ I’m looking to collaborate on Anime Discord Themes
+- 📫 Reach me at twitter.com/flowmat_cl
